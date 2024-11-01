@@ -1,3 +1,10 @@
+---
+title: "Free CS2 Skins: DragonLore + Karambit AK47 Case Hardened"
+description: "Learn how to acquire free Counter-Strike 2 (CS2) skins through daily rewards, community events, and trades."
+keywords: "free CS2 skins, Counter-Strike 2, CS2 skins, DragonLore, Karambit"
+---
+
+
 *Free CS 2 Skins: DragonLore (𝟸𝟶𝟸𝟺) +KarambitAK47CaseHardenedButterfly-Doppler
 
 **Introduction**
